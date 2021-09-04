@@ -1,0 +1,2 @@
+# yaimameitei
+Yaima
